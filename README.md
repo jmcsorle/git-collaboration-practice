@@ -1,2 +1,2 @@
-# All About Mondays
+# All About Mondays!
 "I love Mondays," said nobody.
